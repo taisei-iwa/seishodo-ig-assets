@@ -1,0 +1,1 @@
+# seishodo-ig-assets
